@@ -1,5 +1,5 @@
 RAID = [ 
-"#STRIKE Daddy n terii maa chood dii randd k pillee 🤣
+"#STRIKE Daddy n terii maa chood dii randd k pillee 🤣🤣" ,
 "ᴍᴀᴅᴀʀᴄʜᴏᴅ ᴛᴇʀɪ ᴍᴀᴀ ᴋɪ ᴄʜᴜᴛ ᴍᴇ ɢʜᴜᴛᴋᴀ ᴋʜᴀᴀᴋᴇ ᴛʜᴏᴏᴋ ᴅᴜɴɢᴀ 🤣🤣",
 "ᴛᴇʀᴇ ʙᴇʜᴇɴ ᴋ ᴄʜᴜᴛ ᴍᴇ ᴄʜᴀᴋᴜ ᴅᴀᴀʟ ᴋᴀʀ ᴄʜᴜᴛ ᴋᴀ ᴋʜᴏᴏɴ ᴋᴀʀ ᴅᴜɢᴀ",
 "ᴛᴇʀɪ ᴠᴀʜᴇᴇɴ ɴʜɪ ʜᴀɪ ᴋʏᴀ? 9 ᴍᴀʜɪɴᴇ ʀᴜᴋ ꜱᴀɢɪ ᴠᴀʜᴇᴇɴ ᴅᴇᴛᴀ ʜᴜ 🤣🤣🤩",
